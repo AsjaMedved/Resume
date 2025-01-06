@@ -1,6 +1,6 @@
 # Резюме
 
-![ ](C:\Users\A_User\Desktop\обучение\репозитории\Резюме)
+![ ](https://sun9-26.userapi.com/impg/4OJEpVb1fQt4BPG6BZhiTBvlFiRg3Ra70XsL2Q/dAHVzW2vf1w.jpg?size=1620x2160&quality=95&sign=6d17bac7fdffbb1d37c79964390ac273&type=album)
 
 Медведь Анастасия Вячеславовна
 - Дата рождения 20.04.1991
