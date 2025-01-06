@@ -1,6 +1,6 @@
 # Резюме
 
-![](https://drive.google.com/file/d/1_N2iwAxlQ8MS6onBcABWUqzJhaF0fosx/view?usp=sharing)
+![мое_фото](https://drive.google.com/file/d/1_N2iwAxlQ8MS6onBcABWUqzJhaF0fosx/view?usp=sharing)
 
 Медведь Анастасия Вячеславовна
 - Дата рождения 20.04.1991
